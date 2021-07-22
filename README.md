@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @jyu8462
-- Interested in illustration
+- 🙂 Interested in illustration
